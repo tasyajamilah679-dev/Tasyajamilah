@@ -1,4 +1,4 @@
-# 💖 Hi, I'm tasyajamilah679-dev 💖
+# 💖 Hi, I'm tasya comel 💖
 
 <p align="center">
   <img src="https://readme-typing-svg.herokuapp.com/?color=FF69B4&size=26&center=true&vCenter=true&width=600&lines=Welcome+to+my+GitHub!;Informatics+Student;Future+Web+Developer;Keep+Learning+Everyday+✨" />
